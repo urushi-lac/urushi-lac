@@ -1,6 +1,6 @@
 # Hiroyuki Watanabe : 渡邊博之
 
-## Brief History
+> ## Brief History
 #### Born in 1961
 #### Completed the Japanese lacquer art research course at Tokyo University of the Arts.
 #### Works as a freelance artist
