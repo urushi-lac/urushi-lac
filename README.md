@@ -17,4 +17,4 @@ And Records, Publicity activities.
 #### [My Web Sites](https://urushi-watanabe.com)
 #### [Artistic activities : Face Book Page](https://www.facebook.com/urawa.urushi.watanabe)
 #### [Jomon-urushi Preservation Group : Face Book Page](https://www.facebook.com/jomonurushi)
-#### [Environmental counsellor](https://urushi-lac.github.io/jomon.github.io/images/eco/counselor.png)
+#### [Environmental counsellor](https://edu.env.go.jp/counsel/list/detail.php?id=1998203001&sort=new&p=1&d[n]=%E6%B8%A1%E8%BE%BA%E3%80%80%E5%8D%9A%E4%B9%8B)
